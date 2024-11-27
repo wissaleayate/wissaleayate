@@ -5,7 +5,6 @@
 - 📫 How to reach me (don't)🚫
 - 😄 Pronouns:yaaaw💥
 - ⚡ Fun fact: i am walking contradiction:serious one moment,silly the next.But heyy,that's what makes mee🛸
-always hungry🍰
 <!---
 wissaleayate/wissaleayate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
